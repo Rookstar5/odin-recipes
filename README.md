@@ -1,0 +1,1 @@
+Yo this is where I'm gonna type in everything I learned at the end I guess lmao 
